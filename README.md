@@ -1,1 +1,1 @@
-# Growthfroge-Digital-Marketing
+GrowthForge Digital Marketing is a modern digital marketing website designed to showcase innovative marketing solutions that help businesses strengthen their online presence and achieve sustainable growth. It highlights digital marketing services, branding strategies, SEO, social media marketing, and business growth solutions through an attractive, responsive, and user-friendly interface.
